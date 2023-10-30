@@ -6,4 +6,10 @@ Meu nome é Hellen Bosco
 -Estou cursando o ensino médio no colégio Maria Destefani Griggio.
 -Estudo no período da tarde.
 -tenho 14 anos.
--
+-Amo ouvir músicas.
+-Gosto de futebol mas não acompanho.
+
+Caso queira entrar em contato comigo:
+
+hellen.bosco.melo@escola.pr.gov.br
+
